@@ -1,0 +1,8 @@
+INSTRUCTIONS
+TO MAKE THE PUMPKIN SPICE CAKE:
+Preheat oven to 350°F. Grease a bundt pan with cooking spray or butter, then sprinkle the entire surface with flour (or granulated sugar) and shake off the excess.
+In a large bowl, whisk together flour, baking powder, baking soda, cinnamon, nutmeg, ginger, cloves (optional), and salt until combined. Then in a separate bowl, stir together pumpkin, buttermilk and vanilla until combined.
+Using an electric mixer, beat butter and granulated sugar on medium-high speed until pale and fluffy, about 3 minutes. Add eggs and beat 1 minute, using a rubber spatula to scrape the bottom of the bowl so that everything is combined. Reduce speed to low and add flour and pumpkin mixtures alternately in batches, beginning and ending with flour mixture and mixing until batter is just smooth. Do not overbeat.
+Transfer batter into pan, and smooth the top of the batter with a spatula so that it is smooth. Bake until a wooden pick or skewer inserted in center of cake comes out clean, 45 to 50 minutes. Cool cake in pan on a cooking rack for at least 20 minutes. Then invert cake onto a cooling rack or a cake platter. Top with cream cheese glaze when cooled, or dust with powdered sugar.
+TO MAKE THE CREAM CHEESE GLAZE:
+Using an electric mixer, beat the cream cheese, vanilla, and powdered sugar together on medium low speed until combined. Add milk one tablespoon at a time, beating to combine, until the glaze reaches your desired consistency. If the glaze gets too thin, add in more powdered sugar.
